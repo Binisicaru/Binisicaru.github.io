@@ -1,2 +1,2 @@
 # Binisicaru.github.io
-Other persona page
+Other personal page
